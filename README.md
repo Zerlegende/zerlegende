@@ -11,7 +11,7 @@
 
 ---
 
-## 🧭 Wo ich gerade stehe2
+## 🧭 Wo ich gerade stehe
 
 - 🎓 **Aktueller Stand:** Masterabschluss fast abgeschlossen
 - 🚀 **Aktuelles Ziel:** Beruflicher Einstieg in die IT

@@ -13,7 +13,7 @@
 
 ## 🧭 Wo ich gerade stehe
 
-- 🎓 **Aktueller Stand:** Masterabschluss fast abgeschlossen (Zeugnis ist noch in Arbeit)
+- 🎓 **Aktueller Stand:** Masterabschluss abgeschlossen!!!
 - 🚀 **Aktuelles Ziel:** Beruflicher Einstieg in die IT
 
 ---
